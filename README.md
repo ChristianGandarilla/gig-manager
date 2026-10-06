@@ -1,4 +1,1 @@
 # GIG Manager
-
-otro cambiesito
-
