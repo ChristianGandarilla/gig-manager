@@ -2,6 +2,3 @@
 
 otro cambiesito
 
-ahjhsdhfljhasd
-kmjabnhsljdhf
-lasjdhfdg
